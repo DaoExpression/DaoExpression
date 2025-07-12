@@ -37,6 +37,22 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - Many children were target of violent penalties, for doing something wrong.
     - What Should I do when non-children do mistakes?
     - I dont' know, but I keep trying to Teach.
+- The beauty of contradictions of Yin and Yang, associated to God and the Devil. 
+    - One day a "Good Men" create something. 
+    - In the next day a "Bad Men", deny the "Good Men" creation. 
+    - The "Good", become bad, because did react in a violent way, against who deny his will. 
+    - The "Bad" become good, because it was victimized in a vilent way, by who should know how to deal with those who deny. 
+    - This days, we can see so many stories like this. 
+    - People reacting in a violent way, to those who deny their will.
+- I don't like the military, when the objective is destructive. 
+    - They learn to accept orders, without questioning them. 
+    - They cannot deny them, or else, they will be punished. 
+    - I don't know who love those systems, but I see that many do.
+    - Maybe God is there, trying to be happy with those who don't deny his will. 
+- God is Good but kill us all, the Devil is Bad but make us Laugth.
+    - I am sure that the "Devil" is the Guardian of Paradise.
+    - The one who knows, who is Good or Bad, because God can be Mad. 
+    
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
