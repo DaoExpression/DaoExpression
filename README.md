@@ -23,11 +23,19 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
 - I like Taoism / Daoism.
 - I like to see the Creativity, that is in You and in me.
 - I like the human ability to Imagine and to Create
-- Sometimes I don't like, what humans do with their Unique **Divine** characteristics that all have. 
+- Sometimes I don't like, what humans do with their Unique **Divine** characteristics that all have.
 - Without it, nothing would ever change, nothing could ever be created.
 - In Chinese interpretation, Monkeys are always offensive, while they are peaceful.
-- Outside China, many are silent, while demonstrating being destructive. 
-- Maybe is a coincidence. :) 
+- Outside China, many are silent, while demonstrating being destructive.
+- Maybe is a coincidence, because Chinese can be silent and demonstrating being in Peace.
+- "Everything you will  say, can be used against you in Court."
+- The Criminals believe in the same, but they don't make of use of Courts.
+- This is the common aspect between Legal-Justice and Illegal-Justice. 
+- In this world, we can teach to give the opportunity to others, become better. 
+- Many prefer to Judge, when they could teach.
+- Many children were target of violent penalties, for doing something wrong.
+- What Should I do when non-children do mistakes?
+- I dont' know, but I keep trying to Teach.
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
