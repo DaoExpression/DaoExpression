@@ -75,6 +75,11 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - Maybe they don't wish to learn, while they love to compite.
     - "My book speak about the Truth, not yours, Both say".
 - I think people have some children inside, while that is not bad to the mind.
+- What contradicts with Pleasure? 
+    - Love: If you love, you are living happy. Don't be mistaken, Love is not Happiness. 
+    - To those who have children and Love them, how many sacrifices you need to do? 
+    - I am sure that those sacrifices, did not give you Pleasure. 
+    - Love ask dedication, persistence, we need to deny what we wish for us, to make the ones we love, happy. And if you make them happy, you will feel happy. 
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
