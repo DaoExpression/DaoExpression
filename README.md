@@ -1,6 +1,6 @@
 # About Me
 
-Hello, everyone from Planet Earth, I am here to tell you about me.
+Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :) 
 
 - I am not a Developer, while I can do some coding.
 - I am not a Monkey, while I feel myself more Monkey than Human.
