@@ -69,7 +69,12 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - We ask 5 persons to describe this Paint using text.
     - At the end, we have 5 different descriptions of the same paint.
     - Question: How many paints are in this room?
-    
+- So many books that describe God. 
+    - So many groups compiting about which Book is True.
+    - So many groups denying others interpretations of the same "object".
+    - Maybe they don't wish to learn, while they love to compite.
+    - "My book speak about the Truth, not yours, Both say".
+- I think people have some children inside, while that is not bad to the mind.
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
