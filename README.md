@@ -31,39 +31,43 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - Maybe is a coincidence, because Chinese can be silent, while demonstrating being in Peace.
 - "Everything you will  say, can be used against you in Court."
     - The Criminals believe in the same, but they don't make of use of Courts.
-    - This is the common aspect between Legal-Justice and Illegal-Justice. 
-- In this world, we can teach to give the opportunity to others, become better. 
+    - This is the common aspect between Legal-Justice and Illegal-Justice.
+    - The only way to do Justice, is to be Evil.
+    - Else, we can only teach, to change the choice of those who make wrong choices, while doing the wrong choices, lead us to learn fast.
+    - Humans can only learn by doing mistakes.
+    - Humans can learn by reading, while the thinker will not do anything with what  the thinker knows. 
+- In this world, we can teach to give the opportunity to others, to become better.
     - Many prefer to Judge, when they could teach.
     - Many children were target of violent penalties, for doing something wrong.
     - What Should I do when non-children do mistakes?
     - I dont' know, but I keep trying to Teach.
-- The beauty of contradictions of Yin and Yang, associated to God and the Devil. 
-    - One day a "Good Men" create something. 
-    - In the next day a "Bad Men", deny the "Good Men" creation. 
-    - The "Good", become bad, because did react in a violent way, against who deny his will. 
-    - The "Bad" become good, because it was victimized in a vilent way, by who should know how to deal with those who deny. 
-    - This days, we can see so many stories like this. 
+- The beauty of contradictions of Yin and Yang, associated to God and the Devil.
+    - One day a "Good Men" create something.
+    - In the next day a "Bad Men", deny the "Good Men" creation.
+    - The "Good", become bad, because did react in a violent way, against who deny his will.
+    - The "Bad" become good, because it was victimized in a vilent way, by who should know how to deal with those who deny.
+    - This days, we can see so many stories like this.
     - People reacting in a violent way, to those who deny their will.
-- I don't like the military, when the objective is destructive. 
-    - They learn to accept orders, without questioning them. 
-    - They cannot deny them, or else, they will be punished. 
+- I don't like the military, when the objective is destructive.
+    - They learn to accept orders, without questioning them.
+    - They cannot deny them, or else, they will be punished.
     - I don't know who love those systems, but I see that many do.
-    - Maybe God is there, trying to be happy with those who don't deny his will. 
+    - Maybe God is there, trying to be happy with those who don't deny his will.
 - God is Good but kill us all, the Devil is Bad but make us Laugth.
     - I am sure that the "Devil" is the Guardian of Paradise.
-    - The one who knows, who is Good or Bad, because God can be Mad. 
-- All Religious books are like books-for-children. 
+    - The one who knows, who is Good or Bad, because God can be Mad.
+- All Religious books are like books-for-children.
     - They try to teach some basic values.
-    - They try to inform you about humans events. 
+    - They try to inform you about humans events.
     - Sadly many readers, don't think about what they read.
     - Sadly, most known religious books, become like "technical books"
         - People believe that what those books describe is God will, but for everything that Human create, is Human will, not God. God cannot write books, humans can.
-    - Everything I describe is my sites, are about **The Style of God**, while the Style is not God. 
-    - My style is to create creative content, while trying to teach. 
-        - I am not a teacher and my composition is not made of letters. 
-- There is a Room with one single Paint in the wall. 
-    - We ask 5 persons to describe this Paint using text. 
-    - At the end, we have 5 different descriptions of the same paint. 
+    - Everything I describe is my sites, are about **The Style of God**, while the Style is not God.
+    - My style is to create creative content, while trying to teach.
+        - I am not a teacher and my composition is not made of letters.
+- There is a Room with one single Paint in the wall.
+    - We ask 5 persons to describe this Paint using text.
+    - At the end, we have 5 different descriptions of the same paint.
     - Question: How many paints are in this room?
     
 
