@@ -84,7 +84,11 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
 - God gave us the **Free Will of Choice**. So each one make choices. 
     - God don't care if humanity, kill each others for eternity or make sex compulsivly, while doing sex, is more productive, even if the objective is not to make children.
 
-You are the Wood(America) - I am the Fire(Asia): Which means? 
+You are the Wood(America(Tiger)) - I am the Fire(Asia(Dragon)): Which means? 
+
+- The Dragon is someone who have compulsive problems with perfeccionism.
+- The Tiger is someone who can be a little bit unfair, while if you feed Tigers, they become better than friends. 
+- Monkeys are like me: With clarity in Mind and Positivity in Spirit, Dragons and Tigers feel safe, while Monkeys are like children, as they like to make fun of everything, which can create to both, some confusion.
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
