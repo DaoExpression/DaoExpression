@@ -52,6 +52,19 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
 - God is Good but kill us all, the Devil is Bad but make us Laugth.
     - I am sure that the "Devil" is the Guardian of Paradise.
     - The one who knows, who is Good or Bad, because God can be Mad. 
+- All Religious books are like books-for-children. 
+    - They try to teach some basic values.
+    - They try to inform you about humans events. 
+    - Sadly many readers, don't think about what they read.
+    - Sadly, most known religious books, become like "technical books"
+        - People believe that what those books describe is God will, but for everything that Human create, is Human will, not God. God cannot write books, humans can.
+    - Everything I describe is my sites, are about **The Style of God**, while the Style is not God. 
+    - My style is to create creative content, while trying to teach. 
+        - I am not a teacher and my composition is not made of letters. 
+- There is a Room with one single Paint in the wall. 
+    - We ask 5 persons to describe this Paint using text. 
+    - At the end, we have 5 different descriptions of the same paint. 
+    - Question: How many paints are in this room?
     
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
