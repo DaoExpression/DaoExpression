@@ -80,6 +80,11 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - To those who have children and Love them, how many sacrifices you need to do? 
     - I am sure that those sacrifices, did not give you Pleasure. 
     - Love ask dedication, persistence, we need to deny what we wish for us, to make the ones we love, happy. And if you make them happy, you will feel happy. 
+    - Only in that moment, you feel pleasure. Because the ones you love are good,  not because you had an orgasm. 
+- God gave us the **Free Will of Choice**. So each one make choices. 
+    - God don't care if humanity, kill each others for eternity or make sex compulsivly, while doing sex, is more productive, even if the objective is not to make children.
+
+You are the Wood(America) - I am the Fire(Asia): Which means? 
 
 I am working on this project, explained in the **wiki** and others audio-tracks, like music **Social Tool Kit** from the album **Emotional Signals** and the music **The Challenge** from the album **Spiritual Algorithm**, to be possible to create an Android application to be used by children and older persons. 
 
