@@ -26,7 +26,7 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - I like the human ability to Imagine and to Create
 - Sometimes I don't like, what humans do with their Unique **Divine** characteristics that all have.
     - Without it, nothing would ever change, nothing could ever be created.
-    - In Chinese interpretation, Monkeys are always offensive, while they are peaceful.
+- In Chinese interpretation, Monkeys are always offensive, while they are peaceful.
     - Outside China, many are silent, while demonstrating being destructive.
     - Maybe is a coincidence, because Chinese can be silent, while demonstrating being in Peace.
 - "Everything you will  say, can be used against you in Court."
