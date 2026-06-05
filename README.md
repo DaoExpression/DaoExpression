@@ -18,7 +18,6 @@ Hello, everyone from Planet Earth. If You are an ET, I welcome you too! :)
     - [The Artistic](https://art.OdicforceSounds.com)
     - [The Blog](https://blog.OdicforceSounds.com)
     - [The Wiki](https://wiki.OdicforceSounds.com)
-    - [The Game](https://play.OdicforceSounds.com)
     - [The Book](https://book.OdicforceSounds.com)
     - And somewhere is Time, I will have the app.OdicforceSounds.com 
 - I like Taoism / Daoism.
